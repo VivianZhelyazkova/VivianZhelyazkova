@@ -1,2 +1,2 @@
 
-![MasterHead](https://errortools.com/wp-content/uploads/2021/11/viruses-types-1536x960.jpg)
+![MasterHead](https://media.tenor.com/KoGb1Xgdxx0AAAAC/hacker-ascii.gif)

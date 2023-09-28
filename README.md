@@ -1,2 +1,2 @@
 
-![MasterHead](https://media.istockphoto.com/id/1294491048/vector/hacker-in-a-hoodie-ascii-art.jpg?s=170667a&w=0&k=20&c=-XPlxZ0flBeLha5GPQZNVL99ZwvBAvBUE-nTEe3rPLI=)
+![MasterHead](https://cdn.discordapp.com/attachments/1129910292147613726/1156964856377917491/ascii1.jpg?ex=6516e2fd&is=6515917d&hm=a907885f95ba1998af6bdf5acc921383b05d0dffa6ef81358e0a5a0dbaaecf35&)

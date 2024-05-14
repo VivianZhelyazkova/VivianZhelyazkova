@@ -1,2 +1,2 @@
-<img src="https://imgur.com/a/DXtyqfZ" alt="drawing" width="680"/>
+<img src="https://imgur.com/G4OgNbk" alt="drawing" width="680"/>
 
